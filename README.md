@@ -1,0 +1,1 @@
+# 192-luchshaya-shvabra-dlya-mytya-pola
